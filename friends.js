@@ -247,7 +247,7 @@ ncl sau tca những convo ragebait hay những lần m xin btap o cảm ơn, th�
   },
   {
     name: "Nguyễn Nam Khánh",
-    password: "xokhuyenbuitriuytins1thainguyen", 
+    password: "xokhuyenbuitris1thainguyen", 
     image: "images/nkhanh.jpg",
     letter: `
 "e nếu m cuhk thì m sẽ ní hảo ching chong wo shi lala tht hả svat
