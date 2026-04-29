@@ -26,7 +26,7 @@ ngọc"
 "heluuuu tling 3 năm ngồi cùng tổ gần chỗ nhau ^0^. Trg lớp t thấy m hài vili. Từ mấy lần m legit mặc suit n ties B) đến lớp, trg tiết địa (và 1 vài tiết khác) ngồi chơi game (thấy m emulate game pokemon để chơi trên đthoại thats so cool bro), hay là mấy khi t nghe đc cuộc trò chuyện của m vs mấy nro bên cạnh nghe hay pht :))). Ấn tượng m biết làm bánh, lại còn mang tới lớp chia cho mn nx *v* Trong cuộc sống cứ tiếp tục vui vẻ, làm chính mình nhé (tại m ngầu pht). Lần cuối đi bên nhau r, chúc m luôn hạnh phúc, thuận lợi nhaaa!!! 
   („• ֊ •„)♡
 |￣U U￣￣￣￣￣￣￣￣￣|
-|            (*slur*)  |   
+|            (*slur*) |   
 ￣￣￣￣￣￣￣￣￣￣￣￣
 `
   },
